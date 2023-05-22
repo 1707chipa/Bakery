@@ -7,3 +7,5 @@
 ![image](https://user-images.githubusercontent.com/116334561/228232838-f4596611-3ae1-431f-aa91-20542b51a1bf.png)
 ![image](https://user-images.githubusercontent.com/116334561/228242500-6c75c1cc-35c4-44f0-95c5-26941d15fdd8.png)
 ![image](https://user-images.githubusercontent.com/116334561/228233138-00f2aba9-e63a-40a9-9dd3-c7196964587c.png)
+![image](https://github.com/Dezster213/Bakery/assets/116334561/69308245-239a-40e6-b943-45ae1574c73c)
+![image](https://github.com/Dezster213/Bakery/assets/116334561/5e3e6ac7-e563-4082-b13b-de71291f5132)
